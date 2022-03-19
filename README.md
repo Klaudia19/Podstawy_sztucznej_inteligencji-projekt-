@@ -1,1 +1,1 @@
-# Podstawy_sztucznej_inteligencji-projekt-
+# Podstawy_sztucznej_inteligencji-projekt
